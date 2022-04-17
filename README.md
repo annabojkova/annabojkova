@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @annabojkova
-- 👀 I’m interested in ... Web development and coding
+- 👀 I’m interested in ... Web development, photo and video editing and coding
 - 🌱 I’m currently learning ... Coding and 3D modeling
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
